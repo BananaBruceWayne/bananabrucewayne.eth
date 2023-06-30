@@ -1,2 +1,4 @@
 # bananabrucewayne.eth
-Banana Bruce's Bio Experience on Banana Manor 
+BananaBruceWayne is a first of his kind, NFT-NPC your BananaBatmanButler of the Blockchain.
+
+
